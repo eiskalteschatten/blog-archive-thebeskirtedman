@@ -1,0 +1,3 @@
+A young, male YouTuber spent a day going about his business in a skirt. The reactions were overwhelmingly positive which just shows that wearing a skirt in public as a man really isn’t as scary as most men think it is!
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="ONE DAY IN A SKIRT" width="500" height="281" src="https://www.youtube.com/embed/4qZlQlbjrys?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
