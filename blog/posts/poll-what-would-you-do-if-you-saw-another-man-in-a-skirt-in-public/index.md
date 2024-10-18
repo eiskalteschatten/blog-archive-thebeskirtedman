@@ -2,4 +2,4 @@ Today’s poll is a little last-minute because I was walking around the old city
 
 I didn’t approach him, but now regret that I didn’t. That got me wondering what others would have done in my situation. Therefore, it’s time for a new poll that asks exactly that question. Let us know how you would have handled the situation!
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

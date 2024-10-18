@@ -4,4 +4,4 @@ Let me know what you think and what you would like to see from one if I were to 
 
 Edit: If you don’t know what [Discord](https://discord.com/) is, it is essentially a chat service. If there is interest, I could set up a server with multiple chatrooms where members could have a safe space to chat about gender nonconformity, skirts, their experiences, and other related topics.
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

@@ -4,4 +4,4 @@ If so, what kind of content would you like to see? I have ideas of my own but wo
 
 Let me know in the comments below!
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

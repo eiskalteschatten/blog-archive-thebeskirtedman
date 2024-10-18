@@ -2,4 +2,4 @@ In a [recent post of mine](https://www.the-beskirted-man.com/skirts-and-dresses/
 
 That said, one person in the comments suggested I make a t-shirt out of it. So now my question: Is a well-designed t-shirt with that phrase on it something you would be interested in?
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

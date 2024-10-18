@@ -6,4 +6,4 @@ I have resorted to AI-generated images to depict the topic I want to express wit
 
 So now the question: Should I change the way I use them? Or should I stop using them altogether Please let me know your thoughts in the comments below as any feedback would be incredibly helpful! Thank you!
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

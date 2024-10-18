@@ -2,4 +2,4 @@ Today’s poll asks about the area you live in. This is an interesting question 
 
 It would also be interesting to hear about how where you live affects your confidence in going out in gender-non-conforming clothing. Let us know in the comments below!
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

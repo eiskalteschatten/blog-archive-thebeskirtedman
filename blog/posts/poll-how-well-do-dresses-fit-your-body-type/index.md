@@ -2,4 +2,4 @@ Today’s poll asks about how well dresses fit your body type. I have tried many
 
 This question is a little tricky to manage in a poll format, so if none of the answers fit below, feel free to give us more details in the comments below!
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

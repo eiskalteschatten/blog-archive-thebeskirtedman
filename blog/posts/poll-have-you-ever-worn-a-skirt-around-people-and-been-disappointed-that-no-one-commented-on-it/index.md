@@ -4,4 +4,4 @@ There are times though that I do wear one in public or around people who havenâ€
 
 So have you been in such a situation? Do you bring it up anyway? Or would you rather no one talk about it at all?
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

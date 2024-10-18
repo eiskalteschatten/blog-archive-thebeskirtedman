@@ -4,4 +4,4 @@ Many of the skirt-wearing men I have talked to are both much younger and older t
 
 So, let’s find out just which age groups wear skirts.
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

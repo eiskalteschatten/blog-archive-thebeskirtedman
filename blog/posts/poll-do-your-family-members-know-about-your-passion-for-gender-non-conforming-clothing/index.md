@@ -2,4 +2,4 @@ A lot of men indulge in their passion of gender non-conforming clothing (skirts,
 
 If you have told them, what were their reactions? Do you regularly wear them around your family members? If you haven’t told them, why? What would have to happen for you to tell them? Let us know in the comments below!
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*
