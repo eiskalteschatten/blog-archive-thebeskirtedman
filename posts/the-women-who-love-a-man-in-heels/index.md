@@ -1,5 +1,0 @@
-This is the first of what I imagine will be many, many posts containing links to articles about men in skirts, heels, dresses, etc.
-
-There is such a thing as a woman who finds a man who wears traditionally feminine clothing to be attractive. This is an interesting article about the trend of men in heels and the women who love it.
-
-<figure><div class="wp-block-embed__wrapper"><blockquote class="wp-embedded-content" data-secret="RQmAv6bDBN"><a href="https://melmagazine.com/en-us/story/men-wearing-high-heels">The Women Who Love a Man in Heels</a></blockquote><iframe loading="lazy" class="wp-embedded-content" sandbox="allow-scripts" security="restricted" style="position: absolute; clip: rect(1px, 1px, 1px, 1px);" title="“The Women Who Love a Man in Heels” — MEL Magazine" src="https://melmagazine.com/en-us/story/men-wearing-high-heels/embed#?secret=RQmAv6bDBN" data-secret="RQmAv6bDBN" width="500" height="282" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></div></figure>

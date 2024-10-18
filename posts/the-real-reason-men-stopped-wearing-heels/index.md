@@ -1,3 +1,0 @@
-While this video is primarily about men wearing high heels and the history of how they became “feminine”, it also talks about gender and fashion. Men in skirts are briefly mentioned.
-
-<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="The REAL Reason Men Stopped Wearing Heels" width="500" height="281" src="https://www.youtube.com/embed/0U9T4luEcos?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div><figcaption><a href="https://www.youtube.com/watch?v=0U9T4luEcos" target="_blank" rel="noreferrer noopener">https://www.youtube.com/watch?v=0U9T4luEcos</a></figcaption></figure>
