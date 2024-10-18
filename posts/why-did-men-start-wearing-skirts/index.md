@@ -1,0 +1,3 @@
+This is an interesting video that features a summary of the history of skirts as well as addresses reasons why men don’t wear skirts in most Western cultures in the modern world. At the end of the video, he gives you a few tips as to what you can do if you are a man interested in wearing a skirt.
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Why Did Men Start Wearing Skirts?" width="500" height="281" src="https://www.youtube.com/embed/cKlc2yysY5g?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
