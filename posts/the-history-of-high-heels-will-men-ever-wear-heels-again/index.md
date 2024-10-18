@@ -1,3 +1,0 @@
-This is not only an interesting history of high heels and how they were fashionable among men for centuries, but also briefly touches on the topic of whether they will come back in style for men.
-
-<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="The history of HIGH HEELS. Will men ever wear heels again? #shoelover #heels #history #fashion" width="500" height="281" src="https://www.youtube.com/embed/mNY6mZBP7O0?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
