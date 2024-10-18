@@ -1,0 +1,3 @@
+This is a great video with two men experimenting styling skirts. They offer a few good tips and ideas that any man could use to make wearing a skirt look good.
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Styling Skirts with Daniel Simmons" width="500" height="281" src="https://www.youtube.com/embed/EQuVHs7U7v4?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
