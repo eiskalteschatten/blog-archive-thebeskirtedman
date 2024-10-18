@@ -1,3 +1,0 @@
-An inspirational story by a guy who wears skirts and dresses in public on a regular basis.
-
-<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Men should wear dresses, actually..." width="500" height="281" src="https://www.youtube.com/embed/dEifY62LUvo?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>

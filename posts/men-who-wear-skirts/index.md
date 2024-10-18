@@ -1,0 +1,3 @@
+This is a short video about men who traditionally wear skirts around the world and why it isn’t common for men in the western world to wear them.
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Men Who Wear Skirts" width="500" height="281" src="https://www.youtube.com/embed/N_MxS7A5nws?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
