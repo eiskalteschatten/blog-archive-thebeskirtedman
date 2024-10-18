@@ -1,3 +1,0 @@
-A game streamer on YouTube who enjoys wearing skirts and dresses (also in his videos) has released a video with tips on how to wear a skirt or a dress as a man. I can definitely recommend the video!
-
-<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="5 Style Tips for Wearing Skirts as a Man" width="500" height="281" src="https://www.youtube.com/embed/0Tzywmc2wwM?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
