@@ -1,0 +1,3 @@
+This is a great video about the rise of men’s skirts in fashion. It features a number of different styles for men, discusses why more men are starting to wear them and gives examples of male celebrities who have embraced wearing them.
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="From Kilts to Skorts: The Rise of Men's Skirts in Fashion" width="500" height="281" src="https://www.youtube.com/embed/ajknUaRD6Ms?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
