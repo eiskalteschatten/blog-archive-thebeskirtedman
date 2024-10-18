@@ -2,4 +2,4 @@ Today’s poll asks about a potential new feature for this website. It would int
 
 By that, I mean having a forum here similar in style to [Skirt Cafe](https://www.skirtcafe.org/forums/) but with the general look and feel of The Beskirted Man. A new thread would be created for each new post where commenting would take place instead of directly on the post itself.
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*
