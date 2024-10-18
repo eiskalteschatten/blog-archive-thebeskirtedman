@@ -1,0 +1,110 @@
+[
+  {
+    "id": "events",
+    "name": "Events",
+    "description": "",
+    "wordpressId": 122
+  },
+  {
+    "id": "featured",
+    "name": "Featured",
+    "description": "",
+    "wordpressId": 45
+  },
+  {
+    "id": "gender",
+    "name": "Gender",
+    "description": "",
+    "wordpressId": 264
+  },
+  {
+    "id": "general",
+    "name": "General",
+    "description": "",
+    "wordpressId": 1
+  },
+  {
+    "id": "high-heels",
+    "name": "High Heels",
+    "description": "",
+    "wordpressId": 38
+  },
+  {
+    "id": "in-public",
+    "name": "In Public",
+    "description": "",
+    "wordpressId": 40
+  },
+  {
+    "id": "in-the-media",
+    "name": "In The Media",
+    "description": "",
+    "wordpressId": 36
+  },
+  {
+    "id": "julias-perspective",
+    "name": "Julia's Perspective",
+    "description": "",
+    "wordpressId": 126
+  },
+  {
+    "id": "kilts",
+    "name": "Kilts",
+    "description": "",
+    "wordpressId": 79
+  },
+  {
+    "id": "outfits",
+    "name": "Outfits",
+    "description": "",
+    "wordpressId": 275
+  },
+  {
+    "id": "personal-experiences",
+    "name": "Personal Experiences",
+    "description": "",
+    "wordpressId": 129
+  },
+  {
+    "id": "polls",
+    "name": "Polls",
+    "description": "",
+    "wordpressId": 135
+  },
+  {
+    "id": "profiles-of-beskirted-men",
+    "name": "Profiles of Beskirted Men",
+    "description": "",
+    "wordpressId": 229
+  },
+  {
+    "id": "shopping",
+    "name": "Shopping",
+    "description": "",
+    "wordpressId": 48
+  },
+  {
+    "id": "skirted-stories",
+    "name": "Skirted Stories",
+    "description": "",
+    "wordpressId": 196
+  },
+  {
+    "id": "skirts-and-dresses",
+    "name": "Skirts and Dresses",
+    "description": "",
+    "wordpressId": 37
+  },
+  {
+    "id": "styling",
+    "name": "Styling",
+    "description": "",
+    "wordpressId": 49
+  },
+  {
+    "id": "updates",
+    "name": "Updates",
+    "description": "",
+    "wordpressId": 39
+  }
+]
