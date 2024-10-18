@@ -1,9 +1,0 @@
-You might have noticed that I haven’t been as actively posting in the past few weeks. That’s not only because life has gotten busy (lots of weddings and other events occupying my weekends), but also because I’ve been working on a lot of content and ideas for this website in the background.
-
-I have partially written drafts for posts that require quite a bit of research which means the going is a little slower than sitting down to just write about my experiences off the top of my head. My hope is that these posts will provoke some interesting discussion. One of the topics was suggested to me by a reader and I thought it was an excellent idea, so I’ve been hard at work at it.
-
-Features are another thing I’ve been working on. You may have noticed I’ve posted [a couple of polls](https://www.the-beskirted-man.com/polls/poll-would-you-prefer-more-of-a-forum-for-comments-on-the-beskirted-man/) asking about whether you would enjoy having one or the other feature. I’ve been looking into adding some of them to the website because most participants have voted *for* having the features implemented.
-
-Other than that, I have a whole new section with a different type of content on its way. Of course, it’s all about gender-non-conforming clothing. I won’t give it away yet, but I’ve been heavily inspired by the German blog [Der Mann Im Kleid](https://www.dmik.eu) (The Man in the Dress) and what he’s done with his website beyond just blog posts.
-
-In any case, that’s my quick update about what’s going on and why I’ve (seemingly) been less active than normal. I don’t have a timeline for any of it because I work on everything between work and family obligations, but I’m hoping to get as much of it out as soon as possible. I’m excited about what’s coming.

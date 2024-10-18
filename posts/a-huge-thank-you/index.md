@@ -1,5 +1,0 @@
-A short while ago, I wrote [a post asking for help](https://www.the-beskirted-man.com/general/does-anyone-work-in-a-tech-related-field-i-need-your-help/) from people who work in a computer science-related field. Since then, I have received an incredible response with several comments and a ton of email which has made me incredibly happy.
-
-Unfortunately, I have not gotten around to replying to each person individually yet, so I decided to write a quick thank you post here to express how much I appreciate your contributions. I will still reply personally to each email I received, but I wanted to make sure no one felt like they were forgotten.
-
-So, thank you for your thorough and well thought-through response! You guys have helped me a lot and I hope I can do your answers justice in what will probably be at least two or three posts about the topic!
