@@ -1,0 +1,7 @@
+It’s been a while since I published my last post, so I thought I would show a sign of life here. My skirt-wearing journey has continued full throttle but unfortunately, the time I have for posting has dwindled. My wife started a full-time job which means we are sharing a lot more of the chores and child-watching duties.
+
+I am thoroughly enjoying being a father though and am proud of how well he is developing. I continue to wear skirts around him, even when we go play outside. Those of you who follow me on [Instagram](https://www.instagram.com/thebeskirtedman/) or [X-Twitter](https://x.com/TheBeskirtedMan) have probably noticed a lot more posts of pictures of me outside in our yard playing with my son. The photo above is one of those. The only time I wear pants is when skirts are simply too impractical such as going to the playground where a lot of climbing, running and sliding is involved.
+
+I do have a few new posts in the works and they are coming along in the fragments of time I find between everything else. Since I don’t have as much time for the computer, I’ve found myself writing a lot of them on paper which I will then need to type up. I haven’t had to do that since university, but it’s the easiest (and safest!) way to write when you have a toddler running around.
+
+In any case, I hope everyone is staying safe and healthy and continuing to pursue their passion for skirts!
