@@ -1,0 +1,3 @@
+This is an interesting short video about how it absolutely makes sense that men wear skirts.
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Guys Should Wear Skirts (animation story)" width="500" height="281" src="https://www.youtube.com/embed/gKeWdZFwOJY?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
