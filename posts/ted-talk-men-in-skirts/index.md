@@ -1,3 +1,0 @@
-This is a short, but great talk about what it means to wear a skirt as a man and why men shouldn’t be ashamed of it in today’s society.
-
-<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Men in Skirts | Dylan Cawthorne | TEDxOdense" width="500" height="281" src="https://www.youtube.com/embed/XbPt5fsDrm0?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
