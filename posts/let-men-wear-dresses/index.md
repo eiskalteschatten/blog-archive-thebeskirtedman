@@ -1,3 +1,0 @@
-Who knew that the ancient Greeks thought that pants were effeminate?
-
-<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="let men wear dresses!!!👗" width="500" height="281" src="https://www.youtube.com/embed/m1ToGBTlmQQ?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
