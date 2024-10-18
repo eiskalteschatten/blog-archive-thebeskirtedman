@@ -1,0 +1,5 @@
+This unfortunately titled video is actually very interesting. It talks about how the definition of masculinity is changing to include more “feminine” traits such as the ability to show emotions, talk about feelings, cry, etc. Essentially, it is about the death of toxic masculinity.
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Why modern Men are becoming Feminine  - The downturn of Masculinity" width="500" height="281" src="https://www.youtube.com/embed/438DIt8Lgjk?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
+
+[https://www.youtube.com/watch?v=438DIt8Lgjk](https://www.youtube.com/watch?v=438DIt8Lgjk)
