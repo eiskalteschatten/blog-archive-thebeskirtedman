@@ -2,4 +2,4 @@ Christmas is the time of year when a lot of people see extended family and may n
 
 Let us know what exactly you are planning on wearing and why it will or will not be gender non-conforming in the comments below!
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

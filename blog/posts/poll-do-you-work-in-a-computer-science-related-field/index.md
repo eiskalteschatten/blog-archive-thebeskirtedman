@@ -2,4 +2,4 @@ As [I mentioned in a post](https://www.the-beskirted-man.com/general/does-anyone
 
 There are a lot of them out there (including myself), so I thought I’d start a poll to see how many readers of this blog work in a computer science-related field.
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*

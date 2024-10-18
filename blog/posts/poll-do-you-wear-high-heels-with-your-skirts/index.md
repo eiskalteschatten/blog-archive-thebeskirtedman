@@ -2,4 +2,4 @@ This week’s poll asks about whether you wear high heels with your skirt. Some 
 
 Why do you or don’t you wear high heels with your skirts? Let us know in the comments below!
 
-*Polls have been temporarily removed while we migrate to a new platform.*
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*
