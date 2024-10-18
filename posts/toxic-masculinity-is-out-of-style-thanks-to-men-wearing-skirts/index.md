@@ -1,3 +1,0 @@
-While I don’t entirely think that men wearing skirts is going to do away with toxic masculinity, the article makes an interesting point that it’s a sign that many men are sick of gender norms and are ready to don a skirt to break them.
-
-[https://www.news.com.au/lifestyle/fashion/fashion-trends/toxic-masculinity-is-out-of-style-thanks-to-men-wearing-skirts/news-story/5dd3d4cd5b755b9a0d6087c11505d5dd](https://www.news.com.au/lifestyle/fashion/fashion-trends/toxic-masculinity-is-out-of-style-thanks-to-men-wearing-skirts/news-story/5dd3d4cd5b755b9a0d6087c11505d5dd)

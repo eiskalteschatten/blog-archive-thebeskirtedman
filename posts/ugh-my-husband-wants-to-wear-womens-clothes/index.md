@@ -1,3 +1,0 @@
-This is an interesting article written by a man whose wife isn’t very supportive when it comes to his passion for wearing women’s clothes. It is a very interesting take on his experiences and what his views on the whole topic are.
-
-[https://therealphil.medium.com/ugh-my-husband-wants-to-wear-womens-clothes-02a6f13391db](https://therealphil.medium.com/ugh-my-husband-wants-to-wear-womens-clothes-02a6f13391db)
