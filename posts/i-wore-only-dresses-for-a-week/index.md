@@ -1,3 +1,0 @@
-This YouTuber regularly wears skirts and dresses in public. In this video, he challenged himself to wear only skirts and dresses for seven days while going about his normal life.
-
-<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="I Wore Only Dresses for a Week" width="500" height="281" src="https://www.youtube.com/embed/lWFof7cgixM?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
