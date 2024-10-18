@@ -1,0 +1,3 @@
+A group of men explore and discuss how best to style a skirt as a man. Not only do they talk about it amongst themselves, but they also talk to experts about their ideas.
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Dressing in Skirts | PAQ Ep #74 | A Show About Streetwear and Fashion" width="500" height="281" src="https://www.youtube.com/embed/4nud234Ts6w?start=1102&amp;feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
