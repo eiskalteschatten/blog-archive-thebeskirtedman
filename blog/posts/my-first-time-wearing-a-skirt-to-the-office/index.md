@@ -12,7 +12,7 @@ Once in the office, we headed for the conference room where the seminar was taki
 
 It won’t come as a surprise to most of you who have read about my experiences wearing skirts in public that not a single person mentioned my skirt or treated me any differently throughout the entire day. It was exactly the same as though I had been wearing bottoms you would find in the men’s department.
 
-The only odd looks I got were from a couple of older ladies at the restaurant where we went to eat for lunch. They were very openly staring at me and whispering to each other which is the sort of scenario that rather amuses me since then had probably never seen a man wear a skirt before.
+The only odd looks I got were from a couple of older ladies at the restaurant where we went to eat for lunch. They were very openly staring at me and whispering to each other which is the sort of scenario that rather amuses me since they had probably never seen a man wear a skirt before.
 
 After a long day at the office, I drove back to the hotel with my coworkers and we went our separate ways for a couple of hours until we decided to meet up for dinner. I stayed in my skirt and we had a great meal at a Vietnamese restaurant that we walked to on a major road. Again, absolutely nothing happened.
 
