@@ -1,0 +1,3 @@
+Based on a [suggestion I received](https://www.the-beskirted-man.com/personal-experiences/wearing-a-skirt-for-the-first-time-with-my-mother-in-law/#comment-6123) in the comments of another post, I decided to create this poll to ask what sort of underwear you prefer to wear with your skirts. There are a lot of different types of underwear out there, so it is difficult to list them all here, but I have tried to at least include the most common ones. If yours isn’t listed, let us know in the comments below!
+
+*There used to be a poll here, but had to be removed for this Markdown file because it relied on a WordPress plugin.*
