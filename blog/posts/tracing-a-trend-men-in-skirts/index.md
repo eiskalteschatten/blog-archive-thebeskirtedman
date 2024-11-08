@@ -2,7 +2,7 @@ FashionUnited reports here on the trend of men wearing skirts in modern fashion 
 
 [](https://fashionunited.uk/news/fashion/tracing-a-trend-men-in-skirts/2022061363585 "Tracing a trend: men in skirts")
 
-![](https://i0.wp.com/r.fashionunited.com/p_G03WOKNb2pGNZ8eO-bd3ZCrFf7drFKAvEnfipyYLQ/resize:fit:1200:630:0/gravity:ce/quality:70/aHR0cHM6Ly9mYXNoaW9udW5pdGVkLmNvbS9pbWcvdXBsb2FkLzIwMjIvMDUvMjgvbWVuLWluLXNraXJ0cy11N2xrbmI3ZS0yMDIyLTA1LTI4LmpwZWc.jpeg?ssl=1)
+![](https://i0.wp.com/r.fashionunited.com/p_G03WOKNb2pGNZ8eO-bd3ZCrFf7drFKAvEnfipyYLQ/resize%3Afit%3A1200%3A630%3A0/gravity%3Ace/quality%3A70/aHR0cHM6Ly9mYXNoaW9udW5pdGVkLmNvbS9pbWcvdXBsb2FkLzIwMjIvMDUvMjgvbWVuLWluLXNraXJ0cy11N2xrbmI3ZS0yMDIyLTA1LTI4LmpwZWc.jpeg?ssl=1)
 
 Tracing a trend: men in skirts
 
