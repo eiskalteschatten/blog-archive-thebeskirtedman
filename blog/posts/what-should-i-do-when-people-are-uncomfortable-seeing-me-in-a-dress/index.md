@@ -2,7 +2,7 @@ I love hearing other people’s takes on wearing gender-non-conforming clothing 
 
 [](https://therealphil.medium.com/what-should-i-do-when-people-are-uncomfortable-seeing-me-in-a-dress-31fc1158a5b2 "What should I do when people are uncomfortable seeing me in a dress?")
 
-![](1*UKM456TrMwob7qXxMn5lTg.png)
+![](1%2AUKM456TrMwob7qXxMn5lTg.png)
 
 What should I do when people are uncomfortable seeing me in a dress?
 
