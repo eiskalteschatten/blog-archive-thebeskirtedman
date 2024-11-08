@@ -2,7 +2,7 @@ While the focus of this article by Vogue is trendy pleated skirts, I very much a
 
 [](https://www.vogue.com/article/best-pleated-skirts "Pleats, Please! Shop these Street Style-Approved Pleated Skirts")
 
-![](00-social%20(51).jpg)
+![](00-social%2520%2851%29.jpg)
 
 Pleats, Please! Shop these Street Style-Approved Pleated Skirts
 
