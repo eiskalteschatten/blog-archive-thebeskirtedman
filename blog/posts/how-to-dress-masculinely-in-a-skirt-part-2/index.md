@@ -79,7 +79,7 @@ Image Gallery
 
 The pictures below are just a few of many I have found online that demonstrate how easy it is to dress masculinely in a skirt. Hopefully the also serve as inspiration to help you develop your own style.
 
--   <figure><img loading="lazy" decoding="async" alt="" data-id="600" src="80s-Punk-Fashion-Guide-–-Outfits-and-Inspiration-for-2022.jpeg"></figure>
+-   <figure><img loading="lazy" decoding="async" alt="" data-id="600" src="80s-Punk-Fashion-Guide-%E2%80%93-Outfits-and-Inspiration-for-2022.jpeg"></figure>
     
 -   <figure><img loading="lazy" decoding="async" alt="" data-id="601" src="Andy-West-on-Twitter.jpeg"></figure>
     
