@@ -8,7 +8,7 @@ While the magazine isn’t specifically about clothing, it does promote equality
 
 [](https://sonshinemagazine.com/ "SONSHINE")
 
-![](Copy+of+Copy+of+Help+Us+keep+Sonshine+running.png)
+![](Copy%2Bof%2BCopy%2Bof%2BHelp%2BUs%2Bkeep%2BSonshine%2Brunning.png)
 
 SONSHINE
 
