@@ -2,7 +2,7 @@ This is an excellent post detailing the author’s slow journey into more femini
 
 [](https://medium.com/@jordpalm/my-journey-into-skirts-38823e42e52e "My Journey into Skirts")
 
-![](1*jpwQOcoDBTuiPbw0GAgh0Q.jpeg)
+![](1%2AjpwQOcoDBTuiPbw0GAgh0Q.jpeg)
 
 My Journey into Skirts
 
