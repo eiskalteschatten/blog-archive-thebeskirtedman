@@ -1,0 +1,3 @@
+This week’s “In The Media” post is a bit different in that it is the story of a man’s passion for high heels. As a man who also likes to wear them, I can fully agree with a lot of what he says about them and why they are so enjoyable to wear.
+
+[https://medium.com/@archieee/straight-men-also-wear-high-heels-my-high-heels-journey-7d3bc64c9033](https://medium.com/@archieee/straight-men-also-wear-high-heels-my-high-heels-journey-7d3bc64c9033)
