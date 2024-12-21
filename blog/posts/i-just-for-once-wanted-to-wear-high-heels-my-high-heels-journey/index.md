@@ -1,0 +1,3 @@
+I always love reading about other men’s experiences with and journeys into wearing gender-non-conforming clothing. There isn’t much discussion about high heels on The Beskirted Man, but this is a post about one man’s journey to wearing high heels.
+
+[https://medium.com/@archieee/i-just-for-once-wanted-to-wear-high-heels-my-high-heels-journey-85b5ae6065bf](https://medium.com/@archieee/i-just-for-once-wanted-to-wear-high-heels-my-high-heels-journey-85b5ae6065bf)
