@@ -1,0 +1,7 @@
+Since the election in the United States last November, I have received a surprising number of messages and emails asking me to post about my opinion of Trump and his politics, particularly in light of his position on gender since that was both a prominent topic of his campaign and has been a part of his initial slew of executive orders.
+
+While I certainly do have an opinion on the topic, I don’t want to write about it on this blog as I want everyone to feel included, regardless of what part of the political spectrum you come from. As long as you are respectful, I want you to feel welcome here.
+
+That said, I am currently working on a post that will address how transgender rights affect men wearing gender-non-conforming clothing. It will, of course, by nature include some politics, but I will do my best to remain neutral and, when it comes to politics, report on the hard facts (i.e. a piece of legislation was signed into law) rather than anything that might be influenced by opinion.
+
+In any case, I just wanted to post briefly about why I try to stay away from politics on The Beskirted Man and if they are unavoidable, then try to stay as neutral as possible. I hope everyone feels welcome and, if not, feel free to [send me a private message](https://www.the-beskirted-man.com/contact/) and tell me why!
