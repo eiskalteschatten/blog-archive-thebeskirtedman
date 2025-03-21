@@ -15,7 +15,7 @@ As such, I found a pair of heeled boots in my size (US size 13; not an easy task
 
 I found that I loved wearing them. They gave me a thrill of doing something forbidden and yet nothing actually “bad”. My curiosity was officially piqued and it wasn’t long until I ordered my first skirt to go with the boots. Again, I wore it at home, alone without the knowledge of my wife until I was able to muster up the courage to wear it in front of her. She was, again, very supportive and welcomed me challenging gender norms.
 
-From them on, my obsession grew – and “obsession” is what it has become to an extent. I probably own more pairs of heels of various types than men’s shoes combined throughout my entire life. My skirt collection has also far exceeded any of the number of men’s clothes I have. 
+From then on, my obsession grew – and “obsession” is what it has become to an extent. I probably own more pairs of heels of various types than men’s shoes combined throughout my entire life. My skirt collection has also far exceeded any of the number of men’s clothes I have. 
 
 I don’t generally wear dresses (although I have a few!) because I find they don’t look very good on me. They are cut for the female body and with my broad chest and square, masculine shoulders, they look strange on me in my opinion. So I tend to wear skirts with a male shirt of some sort.
 
