@@ -1,0 +1,19 @@
+{
+  "id": "a-social-media-update",
+  "title": "A Social Media Update",
+  "status": "published",
+  "authors": [
+    "alex"
+  ],
+  "titleImage": "680b4473-0277-4307-a098-1375782eecae.jpg",
+  "excerpt": "This is just a small announcement to provide an update on my social media presence.\n",
+  "categories": [
+    "general"
+  ],
+  "tags": [
+    "social media"
+  ],
+  "publishedDate": "2025-03-21T09:06:28",
+  "updatedAt": "2025-03-21T09:06:33",
+  "wordpressId": 5974
+}
