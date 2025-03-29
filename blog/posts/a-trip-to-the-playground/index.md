@@ -1,0 +1,19 @@
+It’s time for another short story about wearing a skirt in public. Earlier today, my wife and I decided we needed to take our energetic two-year-old out for some physical activity as he was bouncing off the walls of our house. It was a nice day and so we decided to take a stroll without having much of a goal.
+
+I was wearing my [green skirt from Engelbert-Strauss](https://www.strauss.com/de/en/womens-tabards-aprons/skirt-e-s-motion-ten-ladies-3161420-66226-1199.html?itemorigin=SEARCH) with black cotton leggings and, slipping on my black and white Adidas sneakers, I was ready to go. You can kind of see the outfit in the quick snapshot I took above while we were walking.
+
+After we had been out for a little while, my wife suggested we take our son to the playground and I agreed. I hadn’t actually ever worn a skirt to the playground for the simple reason that they aren’t very practical when you have to constantly climb and be on the ground. As much as I love the comfort of a skirt, it is not a garment that is particularly flattering in the positions playing at a playground with a two-year-old puts you into. That meant that today marked new territory for skirt-wearing for me.
+
+When we arrived, a dad and his young daughter were already playing there. We entered the small playground, and the dad looked over to us and did a double-take when he saw me. He even stared for a little while. It wasn’t a hostile stare but more of the I-can’t-believe-what-my-eyes-are-showing-me variety.
+
+The father never did say anything to us, but at some point, he left his daughter playing on her own and moved behind me at a short distance. I caught him taking a photo or video of me which was obvious based on the way he was holding his phone and pointing the camera towards me. I assume he shared it with other people because he was on his phone quite a bit afterward, whereas he hadn’t been at all before that.
+
+There are two ways I could have handled this situation: ignore it or confront him. I chose the former because even though I find it rude to be so obvious about it, I was in a public place and thus willing to be seen anyway. I also figure the more photos people see of men in skirts, the more normal and less “shocking” it will become. Plus, maybe he or another man he knows wears skirts at home but doesn’t have the confidence to go out in public. In that case, seeing another man in a skirt in public might be a confidence-booster. Who knows?
+
+In any case, the man and his daughter left a little while later. He never did say anything to us, but that may have been more of a language issue since I couldn’t recognize the language he was speaking to his daughter. It certainly wasn’t German or English and I don’t know if he spoke either one.
+
+Other than that, another father and his son showed up at the playground at some point as well. Absolutely nothing noteworthy happened with them, not even a stare. The father greeted us politely and then focused on playing with his son. That was it.
+
+Nothing else happened. At some point, we got hungry and cold as the sun set, then walked back home. Some people may have handled the situation with the man who blatantly took a photo or video of me differently than I did, but I honestly just don’t care enough to confront him about it. If I did, I wouldn’t voluntarily post photos and videos of myself in skirts and heels all over the internet. Plus, I hold onto the hope that he or another man he knows is also secretly a beskirted man and that having seen me wearing mine in public may have had a positive impact on somebody.
+
+*What would you have done in my position? Have you ever found yourself in a similar situation? Let me know in the comments below!*
