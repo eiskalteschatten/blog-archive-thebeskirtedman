@@ -1,0 +1,11 @@
+I chickened out today. I woke up this morning with the good intention of wearing a skirt when going to the city of Regensburg, but got cold feet and changed into pants right before catching the train. I’m now sitting in a cafe in the gorgeous baroque city center, writing this up in pants. It’s unfortunate, but for all the bravado and public experience I’ve already had wearing skirts, it still happens to me. I don’t like it, but I think it’s important to be honest with oneself in that regard.
+
+Every time I go out, I can think of a million excuses as to why I shouldn’t wear a skirt that day. Why I should just blend in, conform and wear what everyone expects me to. I can reason with myself until I don’t know why I would even ever wear a skirt out in public again. Sometimes that reasoning wins. It did today.
+
+But in reality the reasoning is just an excuse. It’s all smoke and mirrors. I’ve thought a lot about why I sometimes still chicken out despite all the great experiences I’ve had and I think it is directly correlated to how tired I am. It still takes energy for me to get past that initial hurdle of leaving my safe space and into the broader world and when I’m tired, I can’t always muster the strength and energy.
+
+I’m tired today and I believe that is what has happened. My long-term goal is to overcome the hurdle so that wearing a skirt becomes as easy as wearing pants. The only thing I want to think about is whether I like the outfit and not whether I’m going to wear pants or a skirt.
+
+In any case, I felt like it would be good to be honest with myself and with everyone else and admit that I still do chicken out. I still struggle to overcome the imprint left on me from growing up in a society where skirts are still considered to be a woman’s garment. I’m not going to kick myself or be angry about it, but it does mean I still have more work left to do to reach my goal.
+
+*Have you ever had such an internal struggle when you’re about to go out in a skirt? What do you do to overcome it? Let me know in the comments below!*
