@@ -1,0 +1,17 @@
+Last night, I went out to dinner with a friend of mine that I’ve known for well over ten years. We used to work together, but remained friends even after we both left the company. Since then, we’ve met up for dinner on a semi-regular basis. Like me, he is also a programmer which means most of our conversations tend to revolve around technology and programming.
+
+Even though I’ve known him for so long, I had never actually shared with him the fact that I like to wear skirts and heels. I’ve always worn pants and men’s flat shoes when meeting up with him. For some reason, it just never seemed relevant to this particular friendship and I had no idea how he would react. Well, it turns out that, like in most situations like this, I needn’t have worried.
+
+Recently, I started a new [German blog](https://blog.alexseifert.de/) where I’ve been translating a few of my posts, not just from The Beskirted Man, but also from [my main blog](https://blog.alexseifert.com/). It contains a mix of all my interests instead of dividing it up into separate, subject-based blogs as I do when I post in English.
+
+In any case, he saw the new blog when I shared one of the posts on my LinkedIn account. It wasn’t one about skirts, but he clicked through the blog nonetheless and read through the posts I’ve translated so far. A few of those were some of my earlier posts from The Beskirted Man.
+
+At some point in our conversation last night, he mentioned my German blog and the posts about skirts. We were discussing the current political situation in the US and he asked if I thought I might have problems getting back into the country despite being a US citizen since I’ve posted about wearing skirts and gender-non-conformity online. I told him I didn’t think I would.
+
+That was the extent of it, though. The only other comment he made about the topic was that he thought he remembered me talking about it while we still worked together. However, I really can’t imagine I would have, as that would have been over a decade ago and wearing skirts wasn’t nearly as important to me at the time. In fact, I think I only owned one skirt then and that was a short black skater skirt. It’s the skirt I’m wearing in the pictures at the bottom of my post about [a femboy](https://www.the-beskirted-man.com/skirts-and-dresses/a-femboy-at-work/). Wearing them out in public was certainly not something I did at the time, so it would surprise me if I had said anything about it.
+
+The part about this experience that surprises me most is just how nonchalant it was. Given that he thought I’d already talked to him about the topic long ago, he wasn’t surprised by the posts I had translated. Maybe something about me just screams “man in a skirt”? Maybe he’d already read this blog? I don’t know. I wish I had thought to ask him though.
+
+The conversation moved on entirely naturally and we had a wonderful evening. The topic didn’t come up again as it went back to our staple nerdy programming topics. Next time, I will show up in a skirt, though. That much is certain.
+
+*Have you ever had unexpectedly nonchalant encounters about your gender-non-conformity? Have you ever thought someone didn’t know about it, but then it turns out they actually did? Let me know in the comments!*
