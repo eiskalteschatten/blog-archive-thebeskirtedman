@@ -61,7 +61,7 @@ The first and easiest thing we can do is to raise awareness. This can occur in m
 
 Of course, simply getting out there and wearing your gender-non-conforming clothing in public is also an excellent way to raise awareness. By doing so, you help make it more visible and that is the only way it’s ever going to become more mainstream and thus more acceptable by those who don’t think it’s appropriate. The more men who do that, the stronger we become.
 
-Supporting transgender rights and generally the rights of the LGBTQIA+ community is another key aspect. This can come in several different forms as well. For example, you can vote for political candidates that have a track record of supporting LGBTQIA+ rights. You can also donate to organizations that fight for their rights such as the [Human Rights Campaign](https://www.hrc.org) (US), [Stonewall](https://www.stonewall.org.uk) (UK), [Egale](https://egale.ca) (Canada), [The Trevor Project](https://www.thetrevorproject.org) (US) or [Transgender Europe](https://tgeu.org) (Europe and Central Asia).
+Supporting transgender rights and generally the rights of the LGBTQIA+ community is another key aspect. This can come in several different forms as well. For example, you can vote for political candidates that have a track record of supporting LGBTQIA+ rights. You can also donate to organizations that fight for their rights such as the [Human Rights Campaign](https://www.hrc.org) (US), [TransActual](https://transactual.org.uk/) (UK), [Egale](https://egale.ca) (Canada), [The Trevor Project](https://www.thetrevorproject.org) (US) or [Transgender Europe](https://tgeu.org) (Europe and Central Asia).
 
 By supporting transgender rights, you help to not only mitigate the risk to them but also to yourself.
 
@@ -75,6 +75,8 @@ The places where we would be at the highest risk are the places we probably woul
 If you find yourself in a similar situation to me, you also have to consider whether it is worth losing your job over. At this moment in time, I’m not going to put my job at risk. I enjoy what I do, receive a good salary, have a mortgage to pay off and a family to feed. The job market is also very volatile at the moment, especially in the automotive industry where I am currently working, largely due to a certain person’s obsession with tariffs.
 
 That doesn’t mean we should be entirely passive though. You can vote, you can donate and, if nothing else, get out there and be seen in your free time in that floral dress with whacky, colorful tights! Break the stereotypes, challenge people’s views, show them that a real man wears what he wants even if it isn’t what others expect him to wear! It may not be *their* definition of a “real man,” but the point is to challenge that archaic view of gender and be the person you want to be!
+
+*Note: This post was updated on June 6, 2025 to replace Stonewall with TransActual as the recommended place to donate in the UK. This was done based on reader feedback from the UK.*
 
 As a small aside, I liked the image that AI generated for this post so much that I decided to include it here at the bottom of the post again so that the entirety of the image is visible.
 
