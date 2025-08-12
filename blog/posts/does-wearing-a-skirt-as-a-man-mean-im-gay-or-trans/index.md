@@ -57,3 +57,5 @@ There is one last thing I would like to mention before I wrap up. While I’m no
 Wearing gender-non-conforming clothing does *not* mean you are anything you weren’t before you put the clothing on. It may lead you to discovering that you are gay or transgender, but it’s just as likely that you put the skirt or dress on because you simply like wearing them. Don’t let yourself be pressured by others or by society at large into thinking that you’re something you aren’t. Stay true to yourself, no matter your gender or sexual orientation, and enjoy the wonderful freedom that comes with wearing clothes from both the men’s and women’s departments!
 
 *What are your experiences? Have you ever been asked or asked yourself if you’re gay or transgender just because of your choice of clothing? Let me know in the comments!*
+
+Note: For any German speakers here, I just released a [translated version of this post](https://blog.alexseifert.de/2025/08/11/heisst-es-wenn-ich-als-mann-einen-rock-trage-dass-ich-schwul-oder-trans-bin/) on my German blog, [Alex’ Notizbuch](https://blog.alexseifert.de).
