@@ -106,5 +106,11 @@
     "name": "Updates",
     "description": "",
     "wordpressId": 39
+  },
+  {
+    "id": "week-notes",
+    "name": "Week Notes",
+    "description": "",
+    "wordpressId": 312
   }
 ]
