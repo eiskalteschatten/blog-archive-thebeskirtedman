@@ -1,0 +1,5 @@
+This video doesn’t specifically have anything to do with skirts or wearing gender-non-conforming clothing, but it nonetheless provides some very useful advice to men who want to wear clothing that stands out from the crowd. It primarily focuses on dressing formally vs casually, but the talking points could easily be applied to wearing a skirt as a man in front of others.
+
+<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="Why Dressing Well Feels Embarrassing At First (And How To Get Over It)" width="500" height="281" src="https://www.youtube.com/embed/l7Q3LnMx_wY?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
+
+[https://www.youtube.com/watch?v=l7Q3LnMx\_wY](https://www.youtube.com/watch?v=l7Q3LnMx_wY)
