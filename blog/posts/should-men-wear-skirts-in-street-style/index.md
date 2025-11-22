@@ -1,0 +1,3 @@
+I wouldn’t say this article has a whole lot new to say, although it’s still always good to see more recent posts about men wearing skirts and other gender-non-conforming clothing. It may also be encouraging for those who are on the fence about whether they should go out in public in a skirt or not.
+
+[https://cbs-jm.com/should-men-wear-skirts-in-street-style](https://cbs-jm.com/should-men-wear-skirts-in-street-style)
