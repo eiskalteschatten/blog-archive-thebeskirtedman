@@ -1,0 +1,39 @@
+As I [recently wrote about](https://www.the-beskirted-man.com/general/goings-on/), I’ve been kept busy by life offline and haven’t had a whole lot of time to write on this or any of my [other blogs](https://www.alexseifert.com/blogs/). I’m also behind in replying to my email, so for those of you who have contacted me, I haven’t forgotten, I just haven’t gotten around to it yet… I apologize for that!
+
+Nonetheless, I’ve still been active in wearing skirts and I’ve included pictures of some of my favorite recent outfits below. The last four pictures show my new thigh-high heeled boots that I recently bought on sale from Zalando. They are high, but also have a high platform and are therefore surprisingly comfortable. I wore them all day and didn’t have an issue. My biggest complaint is that they destroyed the fleece-lined tights I was wearing with them in the pictures which are now severely pilling where they were rubbing against parts of the boot shafts.
+
+As far as experiences in my outfits go, I haven’t had anything worth writing about. I’ve gone out in them and while I’ve seen some people looking, I haven’t had anyone comment on them. I usually don’t wear the heels that you see in most of my pictures outside because such high heels are incredibly impractical outdoors, but I do love wearing them inside!
+
+Other than that, we are in full Christmas-preparation mode. My family and I are traveling to the US to spend the holidays with my parents, siblings and their families which means there may not be a lot of skirt-wearing for me. I will still bring a couple of outfits and we’ll see what happens though.
+
+I hope everyone is doing well and is not too stressed about the upcoming holidays!
+
+A few of my recent outfits:
+
+<figure><a href="https://www.the-beskirted-man.com/img_6635/"><img decoding="async" alt="Alex in wetlook-leggings, a skirt and heeled boots" data-height="2000" data-id="8760" data-link="https://www.the-beskirted-man.com/img_6635/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6635-768x1024.jpg" data-width="1500" src="img_6635-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6634/"><img decoding="async" alt="Alex in wetlook-leggings, a skirt and heeled boots" data-height="2000" data-id="8762" data-link="https://www.the-beskirted-man.com/img_6634/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6634-768x1024.jpg" data-width="1500" src="img_6634-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6623/"><img decoding="async" alt="Alex in a white sweater, white leg warmers, black skirt and black tights" data-height="2000" data-id="8761" data-link="https://www.the-beskirted-man.com/img_6623/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6623-768x1024.jpg" data-width="1500" src="img_6623-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6622/"><img decoding="async" alt="Alex in a white sweater, white leg warmers, black skirt and black tights" data-height="2000" data-id="8767" data-link="https://www.the-beskirted-man.com/img_6622/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6622-768x1024.jpg" data-width="1500" src="img_6622-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6624/"><img decoding="async" alt="Alex in a white sweater, white leg warmers, black skirt and black tights" data-height="2000" data-id="8765" data-link="https://www.the-beskirted-man.com/img_6624/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6624-768x1024.jpg" data-width="1500" src="img_6624-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6625/"><img decoding="async" alt="Alex in a white sweater, white leg warmers, black skirt and black tights" data-height="1500" data-id="8763" data-link="https://www.the-beskirted-man.com/img_6625/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6625-1024x768.jpg" data-width="2000" src="img_6625-1024x768.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6605/"><img decoding="async" alt="Alex in a green skirt, blue sweater and brown heeled boots" data-height="2000" data-id="8772" data-link="https://www.the-beskirted-man.com/img_6605/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6605-768x1024.jpg" data-width="1500" src="img_6605-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6606/"><img decoding="async" alt="Alex in a green skirt, blue sweater and brown heeled boots" data-height="2000" data-id="8769" data-link="https://www.the-beskirted-man.com/img_6606/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6606-768x1024.jpg" data-width="1500" src="img_6606-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6607/"><img decoding="async" alt="Alex in a green skirt, blue sweater and brown heeled boots" data-height="2000" data-id="8770" data-link="https://www.the-beskirted-man.com/img_6607/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6607-768x1024.jpg" data-width="1500" src="img_6607-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6612/"><img decoding="async" alt="Alex in a green skirt, blue sweater and brown heeled boots" data-height="1500" data-id="8773" data-link="https://www.the-beskirted-man.com/img_6612/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6612-1024x768.jpg" data-width="2000" src="img_6612-1024x768.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6615/"><img decoding="async" alt="Alex in fleece tights, a black skirt and tall, black heeled boots" data-height="2000" data-id="8764" data-link="https://www.the-beskirted-man.com/img_6615/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6615-768x1024.jpg" data-width="1500" src="img_6615-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6617/"><img decoding="async" alt="Alex in fleece tights, a black skirt and tall, black heeled boots" data-height="2000" data-id="8766" data-link="https://www.the-beskirted-man.com/img_6617/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6617-768x1024.jpg" data-width="1500" src="img_6617-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6618/"><img decoding="async" alt="Alex in fleece tights, a black skirt and tall, black heeled boots" data-height="2000" data-id="8768" data-link="https://www.the-beskirted-man.com/img_6618/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6618-768x1024.jpg" data-width="1500" src="img_6618-768x1024.jpg" data-amp-layout="responsive"></a></figure>
+
+<figure><a href="https://www.the-beskirted-man.com/img_6619/"><img decoding="async" alt="Alex in fleece tights, a black skirt and tall, black heeled boots" data-height="2000" data-id="8771" data-link="https://www.the-beskirted-man.com/img_6619/" data-url="https://www.the-beskirted-man.com/wp-content/uploads/2025/12/img_6619-768x1024.jpg" data-width="1500" src="img_6619-768x1024.jpg" data-amp-layout="responsive"></a></figure>
