@@ -2,6 +2,6 @@ Every once in a while you run into men in skirts where you least expect it. In t
 
 The video below is just the first one I ran into. There are several others of them wearing skirts and just generally not caring about gender norms when it comes to their clothing choices.
 
-<figure><div class="wp-block-embed__wrapper"><iframe loading="lazy" title="I Wanna Be Your Slave - Måneskin" width="500" height="281" src="https://www.youtube.com/embed/8usR4-DJNSo?feature=oembed" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen=""></iframe></div></figure>
+<figure><div class="wp-block-embed__wrapper"><span class="embed-youtube" style="text-align:center; display: block;"><iframe loading="lazy" class="youtube-player" width="640" height="360" src="https://www.youtube.com/embed/8usR4-DJNSo?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent" allowfullscreen="true" style="border:0;" sandbox="allow-scripts allow-same-origin allow-popups allow-presentation allow-popups-to-escape-sandbox"></iframe></span></div></figure>
 
 [https://www.youtube.com/watch?v=8usR4-DJNSo](https://www.youtube.com/watch?v=8usR4-DJNSo)
