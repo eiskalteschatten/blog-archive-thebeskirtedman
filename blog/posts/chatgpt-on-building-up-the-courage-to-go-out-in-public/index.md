@@ -24,7 +24,7 @@ Some of those points I also mentioned in my article, but there are a few others 
 
 See the article I wrote about the topic a couple of weeks ago here:
 
-[](https://www.the-beskirted-man.com/in-public/building-up-the-courage-to-go-out-in-public/ "Building Up the Courage to Go Out in Public")
+[](https://www.the-beskirted-man.com/2023/04/07/building-up-the-courage-to-go-out-in-public/ "Building Up the Courage to Go Out in Public")
 
 ![](vinicius-pittol-7x4V7QpieSE-unsplash-scaled.jpg)
 
