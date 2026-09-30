@@ -4,7 +4,7 @@ The more men that wear them in real life, the more mainstream they will become, 
 
 [](https://www.mrporter.com/en-us/journal/fashion/skirts-for-men-aw21-runway-trend-1769628 "Skirts: Are You Man Enough To Wear One? | The Journal | MR PORTER")
 
-![](https://i0.wp.com/www.mrporter.com/favicon.png?ssl=1)
+![](favicon.png)
 
 Skirts: Are You Man Enough To Wear One? | The Journal | MR PORTER
 
